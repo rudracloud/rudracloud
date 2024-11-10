@@ -45,7 +45,7 @@ If you have any questions or need assistance, please reach out to our support te
 
 ## Contact Us
 
-For business inquiries or any other concerns, you can contact us at info@rudracloud.com.
+For business inquiries or any other concerns, you can contact us at support@rudracloud.com.
 
 ## About RudraCloud
 
