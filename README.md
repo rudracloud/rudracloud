@@ -40,7 +40,7 @@ We offer a hassle-free 48-hour refund policy for most services. For purchases ma
 
 If you have any questions or need assistance, please reach out to our support team:
 - **Email Support**: support@rudracloud.com
-- **Discord**: [Join our Discord](https://discord.com)
+- **Discord**: [Join our Discord](https://discord.gg/MGmmsj7tCJ)
 - **Social Media**: [Instagram](https://www.instagram.com/rudracloud/) | [Twitter](https://twitter.com/rudracloud)
 
 ## Contact Us
